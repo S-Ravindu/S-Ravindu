@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Shehan-Ravindu
+- 👀 I’m interested in Technology
+- 🌱 I’m currently learning Advanced Level
+- 💞️ I’m looking to collaborate on Computers
+- 📫 I'm living at Monaragala
